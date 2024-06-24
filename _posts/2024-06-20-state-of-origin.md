@@ -35,7 +35,7 @@ There are moments in all of our lives that we take a moment to appreciate, the b
 
 The rest of the game was largely irrelevant. As players legs grew ever more tired there were claims of the warm up being too long, hamstrings getting pulled, something about a calf, the kid no-one likes throwing the ball away - general beach touch shenanigans. I think the final score was a draw but as has been known to be the case one side claimed victory and took the ensuing *winners* photos claiming team of the century, GOAT, you name it they claimed it. There were calls for olympic medals at some point. 
 
-![Winners]({{site.url}}/assets/06-24-footy.jpg)
+![Winners](/assets/06-24-footy.jpg)
 
 In all its fair to say that touch footy was the winner. A special mention in despatches should go to Teddy for letting Softee order a tasty take-away banana bread for each of us with the our coffee...
 
