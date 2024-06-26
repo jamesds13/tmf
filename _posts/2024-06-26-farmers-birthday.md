@@ -13,7 +13,7 @@ On a picture perfect morning at 'Curly' beach a sand session that *almost* made 
 
 ![Curly Sunrise]({{site.baseurl}}/assets/2024-06-curly-rise.jpg)
 
-On arrival at the dunes there was a warm up effort. Between the dogs with locator beacon lights and the increasing light levels there was a background sound of groaning and heavy breathing that wouldn't be out of place in a Trump | Stormy trail without the *results*. The time away from the dunes was becoming evident - a rough morning lay ahead. 
+On arrival at the dunes there was a warm up effort. Between the dogs with locator beacon lights and the increasing light levels there was a background sound of groaning and heavy breathing that wouldn't be out of place in a Trump-Stormy trail without the *results*. The time away from the dunes was becoming evident - a rough morning lay ahead. 
 
 The remainder of the session on the dunes had relays, burpees, some odd side plank thing that crushed everyone and backwards running... 
 
