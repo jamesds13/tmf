@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "A Peleton of Flamingos"
+title:  "A Peloton of Flamingos"
 date:   2024-07-01 06:00:00 +1000
 categories: update
 ---
