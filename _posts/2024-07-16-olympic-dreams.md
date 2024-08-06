@@ -39,7 +39,7 @@ The results are best captured in the image below - Canada clearly showing Columb
 
 ![Flags Final]({{site.baseurl}}/assets/flags-gif.gif)
 
-With the coffees ordered and the spanakopita on the table the medal ceremony began and to say there were some questions over the results would be an understatement. WADA was accused of being asleep at the wheel, Cambodia/ Fiji was thought to be talking with China as he continued to shop for countries in teh region and New Zealand was heard to complain that the 'O'lympic Dreams were more of a nightmare than a dream. 
+With the coffees ordered and the spanakopita on the table the medal ceremony began and to say there were some questions over the results would be an understatement. WADA was accused of being asleep at the wheel, Cambodia/ Fiji was thought to be talking with China as he continued to shop for countries in the region and New Zealand was heard to complain that the 'O'lympic Dreams were more of a nightmare than a dream. 
 
 Like all great events though, they will return regardless of the question marks that surround the results. 
 
